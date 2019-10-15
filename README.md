@@ -31,3 +31,6 @@ Las redes sociales, los influencers y … nos han hecho consumistas. ¿Cómo?
 Las redes sociales, y en general, internet
 Tampoco podemos culparnos, es mucho más facil culpar a las webs que dejan a tan solo un click de distancia la opción de vaciar tu tarjeta, lo que ellos llaman ¡Comprar!
 Además suelen ponerlo dentro de grandes recuadros que contrastan en la gma de colores del resto de la web
+https://www.elmundo.es/papel/lideres/2018/10/17/5bc6055ee2704e389b8b45cd.html
+https://www.ellieharrison.com/eat22/
+https://www.katebingamanburt.com/daily-purchase-drawings
