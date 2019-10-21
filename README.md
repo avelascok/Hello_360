@@ -16,7 +16,8 @@ Mostrar el atisbo de egocentrismo que está presente en todas y cada una de las 
 Las redes sociales se han convertido en un medio a través del que desahogarte, presumir y quejarte, todo ello públicamente. De 
 
 Este proyecto tiene una intención muy clara, mostrar como las redes sociales se han convertido en un medio para que las personas puedan desahogarse, presumir y quejarse, todo ello, por supuesto, públicamente. 
-Con ello, el egocentrismo ligado a estas personas, a las cuales se les ha normalizado el hecho de contar todo lo que les ocurre pensado que de alguna manera hay gente que lo quiere, o peor aún, lo necesita. Porque quien no quiere saber lo que comen, beben o lo que se gastan en ropa a la semana estos llamados “influencers”, la respuesta es corta, NADIE. En gran medida todo esto se ha ido de las manos, lo que empezó con videos 
+Con ello, el egocentrismo ligado a estas personas, a las cuales se les ha normalizado el hecho de contar todo lo que les ocurre pensado que de alguna manera hay gente que lo quiere, o peor aún, lo necesita. Porque quien no quiere saber lo que comen, beben o lo que se gastan en ropa a la semana estos llamados “influencers”, la respuesta es corta, NADIE. En gran medida todo esto se ha ido de las manos, lo que empezó con videos de alguna manera humildes e inofensivos, ha desembocado en una masa de egocentrismo de la que pocos consiguen escaparse.Este narcisimo además d e
+
 Sociedad individualista 
 Narcisismo se ha convertido en u problema
 Orientado al consumismo
