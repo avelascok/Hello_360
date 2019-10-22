@@ -40,4 +40,4 @@ https://www.elmundo.es/papel/lideres/2018/10/17/5bc6055ee2704e389b8b45cd.html
 https://www.ellieharrison.com/eat22/
 https://www.katebingamanburt.com/daily-purchase-drawings
 
-
+Mi trabajo consta de 4 esferas, en la primera de ellas se reproducirá un video que representará el consumismo en su totalidad, algo que en la sociedad actual sea símbolo claro de consumo. De ella tendremos acceso a lo que podemos llamar “¿a que lleva este consumismo?”. La primera nos hablara del narcisismo con una serie de fragmentos audiovisuales que provoquen rechazo y agobio al espectador, representando lo que puede suponer una persona así en grandes dosis. En segundo lugar, tendremos al consumismo desmesurado, que abra los ojos a la gente para mostrar a que niveles de locura estamos llegando. Por último, y no menos importante el individualismo creciente, que tienes todas las de desembocar en un futuro sin relaciones reales en el que a lo único que se podrá amar será a uno mismo.
