@@ -39,5 +39,8 @@ Además suelen ponerlo dentro de grandes recuadros que contrastan en la gma de c
 https://www.elmundo.es/papel/lideres/2018/10/17/5bc6055ee2704e389b8b45cd.html
 https://www.ellieharrison.com/eat22/
 https://www.katebingamanburt.com/daily-purchase-drawings
-
+El trabajo aborda tres temas el narcisimo, consusmismo e individuaismo en red a través del video online. 3Sintomas
 Mi trabajo consta de 4 esferas, en la primera de ellas se reproducirá un video que representará el consumismo en su totalidad, algo que en la sociedad actual sea símbolo claro de consumo. De ella tendremos acceso a lo que podemos llamar “¿a que lleva este consumismo?”. La primera nos hablara del narcisismo con una serie de fragmentos audiovisuales que provoquen rechazo y agobio al espectador, representando lo que puede suponer una persona así en grandes dosis. En segundo lugar, tendremos al consumismo desmesurado, que abra los ojos a la gente para mostrar a que niveles de locura estamos llegando. Por último, y no menos importante el individualismo creciente, que tienes todas las de desembocar en un futuro sin relaciones reales en el que a lo único que se podrá amar será a uno mismo.
+
+Narcisismo:  es un trastorno mental en el cual las personas tienen un sentido desmesurado de su propia importancia, una necesidad profunda de atención excesiva y admiración, relaciones conflictivas y una carencia de empatía por los demás. Sin embargo, detrás de esta máscara de seguridad extrema, hay una autoestima frágil que es vulnerable a la crítica más leve.
+https://elpais.com/elpais/2018/11/14/album/1542210028_254932.html#foto_gal_3
